@@ -1,0 +1,1 @@
+Gridek gyakorlása
